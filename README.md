@@ -30,6 +30,21 @@ https://discord.gg/nm2kk22kg6
 
 
 
+https://github.com/mw3cod/mw3-no-recoil/assets/162490095/4c058c7b-9b1c-47f9-82c8-018eec17a829
+
+https://github.com/mw3cod/mw3-no-recoil/assets/162490095/b753b4b8-d652-4497-8fee-47f283a09ba0
+
+https://github.com/mw3cod/mw3-no-recoil/assets/162490095/f86002eb-a052-47c0-9bf8-9be9aef06497
+
+https://github.com/mw3cod/mw3-no-recoil/assets/162490095/abcee8f3-b69e-4db8-aadc-a05d5fe09ed4
+
+
+
+
+
+
+
+
 
 
 
